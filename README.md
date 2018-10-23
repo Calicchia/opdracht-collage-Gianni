@@ -12,3 +12,7 @@
 Well, why am I the only one that treats you this way?
 Well, you got that something and it's hard to specify,
 I can't diagnose that look in your eyes.*
+####You don't do unto me, like I know you could 
+####Why am I the only one who's misunderstood? 
+####Ashes to ashes, and it's dust to dust, 
+####Well, if you won't take me then I guess the devil must.
