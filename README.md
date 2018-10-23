@@ -16,3 +16,5 @@ I can't diagnose that look in your eyes.*
 ####Why am I the only one who's misunderstood? 
 ####Ashes to ashes, and it's dust to dust, 
 ####Well, if you won't take me then I guess the devil must.
+
+# zonder fouten
